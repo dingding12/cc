@@ -1,1 +1,1 @@
-# xinyuan.github.io
+# https://dingding12.github.io/cc/
